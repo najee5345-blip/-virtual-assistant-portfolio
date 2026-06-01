@@ -47,7 +47,7 @@ I help businesses stay organized, manage tasks, and improve productivity.
 
 ## 📩 Contact
 
-📧 your email  
+📧 najee5345@gmail.com
 📍 Nakuru, Kenya  
 
 ---
